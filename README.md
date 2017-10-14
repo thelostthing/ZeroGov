@@ -1,6 +1,6 @@
 # ZeroGov
 
-###AN IDEA. 
+### AN IDEA. 
 
 To **REPLACE** all governments on the Earth 
 Or **INIT** human society on a new planet.
