@@ -27,7 +27,7 @@ Optional: Can be understand by computer, judge by computer to give just advice.
 
 >No more unfair Tax, each 'money account' freeze some percentage belongs to 'public money accounts' based on income and (?,?,) (rules voteable);
 
->No more cufused Tax using, what to use on(education, police.. all powered by company to earn money from public), where use in, when using, who get the tax money, all details traceable as tax giver.
+>No more cufused Tax using, what to use on(education, police.. all powered by company to earn money from public), where use in, when using, who get the tax money, all details trackable as tax giver.
 
 
 
