@@ -3,18 +3,20 @@
 ### AN IDEA. 
 
 To **REPLACE** all governments on the Earth.
+
 Or **INITIALIZE** human society on a new planet.
 
 
-Treat each human **EQUALITY** and **NO MORE PRIVACY**.
+> Treat each human **EQUALITY** and **NO MORE PRIVACY**.
 
-> Human groups-ed freedom, from single, block, city, to whole planet.
+> Human groups-ed freely, from single, block, city, to whole planet.
 
 > To make things happen, human vote, for which that affect groups who belonged mostly.
 
 > More flexable LAW with human natural instincts considered. 
 Optional: Can be understood by computer, judged by computer, and given just advice.
 
+***
 
 > Main purpose of law: 
 
